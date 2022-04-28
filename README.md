@@ -10,3 +10,5 @@ Output : No solution
 ```
 
 Shinobi8894 😁😁😁😁😁😁😁
+
+Please enjoy it
